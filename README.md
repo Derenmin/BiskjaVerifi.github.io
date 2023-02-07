@@ -1,4 +1,4 @@
 # BiskjaVerifi
 ## Hi
-I justo want a verified sign
+I just want a verified sign
 😝
